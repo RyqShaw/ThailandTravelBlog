@@ -6,6 +6,6 @@ pubDate: 2026-07-13T13:20:00.000-04:00
 ---
 HI
 
-![](../../assets/blog-placeholder-about.jpg)
+![](../../assets/crimsonv3.png)
 
 Hi
