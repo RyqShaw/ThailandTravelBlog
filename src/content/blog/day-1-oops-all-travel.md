@@ -4,7 +4,7 @@ author: Sharyq "Elite Packer" Siddiqi
 description: Sharyq Recounting first day of travelling from Chicago to Bangkok,
   and start of trip!
 pubDate: 2026-07-13T13:29:00.000-04:00
-heroImage: ../../assets/blog-placeholder-3.jpg
+heroImage: ../../assets/img_1752.jpeg
 ---
 ## Welcome to the start of this trip!
 
