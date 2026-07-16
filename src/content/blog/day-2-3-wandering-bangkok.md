@@ -3,6 +3,7 @@ title: "Day 2 & 3: Wandering Bangkok"
 author: Sharyq “the sleep deprived” Siddiqi
 description: Wandering Bangkok
 pubDate: 2026-07-15T22:13:00.000+07:00
+heroImage: ../../assets/img_1767.jpeg
 ---
 Hey yall!
 
