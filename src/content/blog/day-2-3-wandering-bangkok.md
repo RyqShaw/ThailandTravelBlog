@@ -19,6 +19,8 @@ Immediately we were launched into a very densely populated area, full of both th
 
 After that we wandered around, bouncing between places with AC, and finally got lunch at this market where benji got a chicken feet soup and I got chicken fried rice!
 
+![My Lunch: Chicken Fried Rice](../../assets/img_1766.jpeg)
+
 # Wrapping up the Day
 
 After this, we ended up taking a train to our Hotel, got organized and give ourselves a break from the heat. We ended the day with dinner at a place called Common House, and i got a chicken walnut rice that was delicious. Overall not a complex day, not too eventful, but  was a great introduction to what our trip will be like!\
