@@ -23,7 +23,11 @@ After that we wandered around, bouncing between places with AC, and finally got 
 
 # Wrapping up the Day
 
-After this, we ended up taking a train to our Hotel, got organized and give ourselves a break from the heat. We ended the day with dinner at a place called Common House, and i got a chicken walnut rice that was delicious. Overall not a complex day, not too eventful, but  was a great introduction to what our trip will be like!\
+After this, we ended up taking a train to our Hotel, got organized and give ourselves a break from the heat. We ended the day with dinner at a place called Common House, and i got a chicken walnut rice that was delicious. Overall not a complex day, not too eventful, but  was a great introduction to what our trip will be like!
+
+![Benji and I waiting for the Train](../../assets/img_1770.jpeg)
+
+\
 \
 Sincerely,\
 Sharyq
