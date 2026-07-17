@@ -7,22 +7,20 @@ heroImage: ../../assets/img_1817.jpeg
 ---
 Hey Yall! Today marked our second day in Hat Yai, and we started the morning off by going to a breakfast place down the street from use, where Benji got a pudding and I had a bread with a Pandan dip! From there, we went back to the hostel, and the lady who ran the place asked to take our picture. In the hostel there was a picture of every resident who visited, so we were being added to the wall(if you ever stay at Khok samet chun hostel, try spotting us)
 
-# \
-Municipal Park
+# Municipal Park
 
 ![](../../assets/img_1819.jpeg)
 
 After the checkout, we got a Grab, and headed to Municipal, a mountain with temples and hiking trails. At the point, we got to see the entirety of Hat Yai from a birds eye view, and got to see 4 large budha statues
 
-![Place holder](../../assets/blog-placeholder-5.jpg)
+![Place holder](../../assets/img_1828.jpeg)
 
 Once we walked down the mountain a bit we reached one of the temples, one in which that had statues representing different deities such as war and mercy. Many people were doing prayer here, in hopes of maintaining peace.
 
 \
 After this, Benji and I just hiked down the rest lf the mountain, looking around the ponds we found, exploring smaller outposts setup and just having a nice hike down the mountain in general.
 
-# \
-Afternoon in Town
+# Afternoon in Town
 
 After this, Benji and I needed some down time, so we decided to go to this small coffee shop called Kaffe 25. It was a cute and cozy little coffee shop owned by this one older gentleman. 
 
