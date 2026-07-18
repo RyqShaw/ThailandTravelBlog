@@ -31,7 +31,7 @@ We went to the night market for an affordable dinner. I got some fried chicken, 
 
 ![](../../assets/img_1638.jpeg)
 
-We finished off the night at White Rabbit, an adorable little bar with an amazingly cozy atmosphere. We each had a different local beer and chatted for an hour, during which we witnessed our first rainy-season downpour, which died down before me had to go home. All together, today was a wonderful day filled with stinky bean, beautiful foliage, and the wonderful small town vibe of Trang.
+We finished off the night at White Rabbit, an adorable little bar with an amazingly cozy atmosphere. We each had a different local beer and chatted for an hour, during which we witnessed our first rainy-season downpour, which died down before we had to go home. All together, today was a wonderful day filled with stinky bean, beautiful foliage, and the wonderful small town vibe of Trang.
 
 ![](../../assets/img_1641.jpeg)
 
