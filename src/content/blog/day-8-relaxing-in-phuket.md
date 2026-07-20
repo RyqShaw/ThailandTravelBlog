@@ -47,12 +47,17 @@ The Thai massage is a full body thing, he first started with my legs and feet, p
 \
 After the massage, I tipped my masseuse 80 baht, changed, headed downstairs where i was greeted with tea, a warm towel, and a little cookie. I spent 15 minutes here just relaxing and sipping my tea. 
 
-\
+![](../../assets/img_2036.jpeg)
+
 Afterwards, I wandered a bit more through town, going through the Queens Park, getting a thai tea at karun(decent tea, tad pricey compared to things I have seen elsewhere, but perhaps thats just Phuket), and then met up with Benji.
+
+![](../../assets/img_2037.jpeg)
 
 # Phuket Old Town Evening
 
 We wandered around for a while before ending up at this place called Tu Kab Kao. We sat down, ordered some beers, and had a lovely conversation with 2 elderly Australian tourists. As much as I have really enjoyed the non touristy places and things in Thailand, what I enjoy about the touristy towns is not just the people local, but the people visiting are also amazing, all of us having a united experience. At dinner we ordered a grilled fish, a pumpkin flat noodle stir fry, and a shrimp curry with Benji’s favorite stinky beens on top. I wish I had pictures of the food, unfortunately, we eviscerated it. Can confirm great food though, first truly pricier meal here though.
+
+![](../../assets/img_2051.jpeg)
 
 \
 We walked around a bit longer, I showed benji the queen’s park, originally we wanted to go to a bar, but we both still weren't feeling it due to our horrid sleep, so we came back to rest. Benji is already knocked out, and I plan to knock out as well soon. Overall a really relaxed day, especially in comparison to what we had been doing before, but thats exactly what was needed.
