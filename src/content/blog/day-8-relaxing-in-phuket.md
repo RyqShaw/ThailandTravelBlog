@@ -3,6 +3,7 @@ title: "Day 8: Relaxing in Phuket"
 author: Sharyq “the Zen” Siddiqi
 description: Sharyq recounts first day in Phuket
 pubDate: 2026-07-20T21:50:00.000+07:00
+heroImage: ../../assets/img_2038.jpeg
 ---
 Hey Y'all! This morning was rough, neither me or Benji slept paticularly well. We slept at Bed Station Hostel, and being honest, their beds were as hard as rock, and the rooms ac didnt work right so it was frigid, and the combination of thin blankets made us freeze, do not recommend. Regardless, we got our day started!
 
@@ -10,14 +11,17 @@ Hey Y'all! This morning was rough, neither me or Benji slept paticularly well. W
 
 Our bus to Phuket was at 10, so we decided to go to the local morning market. Much like the rest of the morning markets we has been through, it had been full of all sorta of fresh vegetables, meats, produce, and our breakfast.  A french man in the market called us over and told us we had made a good decision coming here at this time, and that there would be a “surprise” at 8 am.
 
+![](../../assets/img_2014.jpeg)
+
 \
 Anyway, at the market Benji got a pork porridge while i got some fried dough and pandan, and some wontons with poridge and scallions and purple potatoes. And while were eating the surprise happened. A song started playing, everyone started standing and was silent, and we were so confused at first, then quickly joined. You would think the french man would have warned us of this.
 
 \
 After the surprise, we finished our breakfast, Benji got more stinky beans, visited the Krabi Crab, and then we got ready to head to Phuket
 
-# \
-Travel to Phuket
+![](../../assets/img_2017.jpeg)
+
+# Travel to Phuket
 
 We booked a bus ahead of time on 12go from krabi, and when we got to the bus station, we checked in, and then hopped into the tiniest little van with about 10 other people, and drove for 3 hours, was not pleasant, but it was an experience.
 
