@@ -3,6 +3,7 @@ title: "Day 10: Phang Nga Bay & “James Bond” Island"
 author: Siddiqi, Sharyq Siddiqi
 description: Sharyq talks about the day trip tour we took through Phang Nga Bay
 pubDate: 2026-07-22T07:44:00.000+07:00
+heroImage: ../../assets/img_2191.jpeg
 ---
 Hey yall! Blog post coming in a little later than expected. Yesterday was a lot so I decided to do it this morning rather than last night. Last night was a full day. This day we did a full tour that took place from 9 am to 4 pm with about an 1-2 hours of travel on both ends of that, so I was completely wiped, but by far one of the craziest experiences I feel I have had.
 
