@@ -23,8 +23,15 @@ We provided some snacks and some coffee and tea on board while we travelled to t
 \
 Our boat stopped at our first point, at Phanak Island, the biggest island we would visit, and we got to go canoe in a cave north of the island. For safety reasons(and because it was a tour), we were accompanied by a very nice guy named Song. He guided us through the cave system and showed us all the interesting natural structures within the area, from enclaves to nature, and took a picture of Benji and I here.
 
-\
+![](../../assets/img_2114.jpeg)
+
+
+
+![](../../assets/img_2129.jpeg)
+
 On the way out, he showed us more of the Island side and we noticed a group of bats perched up in an end of the cave!
+
+![](../../assets/img_2144.jpeg)
 
 \
 Afterwards we were brought back to the boat to go for our second canoeing trip.
@@ -55,6 +62,7 @@ It was a buffet style meal that included fried rice, sweet and sour noodles, gri
 The final destination on our tour was the island that the 1974 James Bond movie “The man with the golden gun” was filmed. This island was beautiful, having a nature walk and showed off the beautiful natural structures being able to see the exact places where things were filmed. I don’t have much else to say about this part, I just found the views crazy and the thought perpetually in the back of my head “my dad is going to lose his mind”.
 
 # \
+
 End of Tour
 
 On the way out, Tony thanked us, and the cooks made us these corn and coconut pancake bites for us, local to the area apparently and honestly I took 4, they were crazy tasty, and I loved them, not a lot of the other tourists were taking so Benji and I took advantage of it.
@@ -66,6 +74,7 @@ From here we tipped both Song and the Cooks for being so great on this trip, and
 When we finally got back to Phuket, we hopped back into the bus we were in earlier this morning, to head back to our hostel. We were the last ones picked up last time, so we were the last ones dropped off.
 
 # \
+
 A Light Evening
 
 After we got back, we showered, then went out to a local place right next to our hostle, Benji got a pork broth soup and a fish, and I got sweet and sour chicken. Afterwards, we decided to go to a speakeasy nearby called “shhh” I would tell you where it is, but that gets rid of the fun. We were there a bit early so it was a bit dead, but the drinks were tasty. Afterwards, we just decided we wanted to walk around, explore old town a bit, and then head back to the hostel for the night. Overall today had some of the craziest views, and I probably took more pictures than any other place, more than can probably fit in this blog post, so maybe after the trip is done, I can upload them in an album and put it on the website somewhere. Anyways, thats about it!
