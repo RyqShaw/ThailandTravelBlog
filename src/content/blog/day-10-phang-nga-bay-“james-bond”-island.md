@@ -50,11 +50,11 @@ We went slightly more north for the next canoe trip, and it was much more of the
 
 ![](../../assets/img_2123.jpeg)
 
-# \
-Swimming at Na Khae Island
+# Swimming at Na Khae Island
 
 Our next destination was one where we promised we could swim at, our boat stopped a  little bit away from the island, and we were told we could swim, paddle board and go to the island “if we were strong enough swimmers”.
 
+\
 That last statement made me take it as a personal challenge. So immediately first chance I got, i jumped off the boat into the water and started swimming. As I said in the beach day blog, the water here is just so pretty and so nice and warm. I ended up swimming across to the island with these 2 french guys who were also here. Honestly I was trying to race them a bit, but one of them out paced both of us.
 
 \
@@ -72,9 +72,17 @@ It was a buffet style meal that included fried rice, sweet and sour noodles, gri
 
 The final destination on our tour was the island that the 1974 James Bond movie “The man with the golden gun” was filmed. This island was beautiful, having a nature walk and showed off the beautiful natural structures being able to see the exact places where things were filmed. I don’t have much else to say about this part, I just found the views crazy and the thought perpetually in the back of my head “my dad is going to lose his mind”.
 
+![](../../assets/img_2202.jpeg)
+
+![](../../assets/img_2210.jpeg)
+
+![](../../assets/img_2222.jpeg)
+
 # End of Tour
 
 On the way out, Tony thanked us, and the cooks made us these corn and coconut pancake bites for us, local to the area apparently and honestly I took 4, they were crazy tasty, and I loved them, not a lot of the other tourists were taking so Benji and I took advantage of it.
+
+![](../../assets/img_2225.jpeg)
 
 \
 From here we tipped both Song and the Cooks for being so great on this trip, and then we relaxed, it was a bit of a ride back, so I just listened to music and stared off into the view of the islands, the bay is a place where you can see Krabi, Phang Nga, and Phuket all so clearly, so it was nice to just take in the view.
@@ -83,6 +91,8 @@ From here we tipped both Song and the Cooks for being so great on this trip, and
 When we finally got back to Phuket, we hopped back into the bus we were in earlier this morning, to head back to our hostel. We were the last ones picked up last time, so we were the last ones dropped off.
 
 # A Light Evening
+
+![](../../assets/img_2228.jpeg)
 
 After we got back, we showered, then went out to a local place right next to our hostle, Benji got a pork broth soup and a fish, and I got sweet and sour chicken. Afterwards, we decided to go to a speakeasy nearby called “shhh” I would tell you where it is, but that gets rid of the fun. We were there a bit early so it was a bit dead, but the drinks were tasty. Afterwards, we just decided we wanted to walk around, explore old town a bit, and then head back to the hostel for the night. Overall today had some of the craziest views, and I probably took more pictures than any other place, more than can probably fit in this blog post, so maybe after the trip is done, I can upload them in an album and put it on the website somewhere. Anyways, thats about it!
 
