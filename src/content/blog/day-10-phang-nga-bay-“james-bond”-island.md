@@ -42,7 +42,12 @@ Afterwards we were brought back to the boat to go for our second canoeing trip.
 
 We went slightly more north for the next canoe trip, and it was much more of the same kind of thing. This area in Hong Island had a lot more extreme cliffs and peaks to admire, our guy, Song, once again brought us out, showed us peaks, a specific area filmed in the James Bond Film “The Man with the Golden Gun”(more on that later), and mangroves and lizards.
 
-# Swimming at Na Khae Island
+![](../../assets/img_2153.jpeg)
+
+![](../../assets/img_2159.jpeg)
+
+# \
+Swimming at Na Khae Island
 
 Our next destination was one where we promised we could swim at, our boat stopped a  little bit away from the island, and we were told we could swim, paddle board and go to the island “if we were strong enough swimmers”.
 
