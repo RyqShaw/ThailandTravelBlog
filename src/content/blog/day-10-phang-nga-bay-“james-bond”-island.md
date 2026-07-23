@@ -17,15 +17,17 @@ We took our morning slow, at 8, the driver contacted us, and brought us into a b
 
 We were greeted by our tour guide, a Phuket local names Tony. He gave us an intro to the trip gave us a little insight into what the tour would be like and just brought a good energy to the boat. Benji and I just ended up talking to him about Phuket’s specific culture, what it was like for him, and our general travels, and he seemed really excited. He came from a family of Fisherman in northern phuket, called it a floating village, and gave us insight to how the locals lived.
 
+![](../../assets/img_2104.jpeg)
+
 \
 We provided some snacks and some coffee and tea on board while we travelled to the first point in our trip. Benji and I just kept our selves in our seats because the views were just so beautiful. Benji did some research on the bus ride here on the geology of the bay and due to tectonic plate locations, extreme cliffs formed around this area, and they consisted mostly of a granite and limestone(probably over generalizing here).
+
+![](../../assets/img_2108.jpeg)
 
 \
 Our boat stopped at our first point, at Phanak Island, the biggest island we would visit, and we got to go canoe in a cave north of the island. For safety reasons(and because it was a tour), we were accompanied by a very nice guy named Song. He guided us through the cave system and showed us all the interesting natural structures within the area, from enclaves to nature, and took a picture of Benji and I here.
 
 ![](../../assets/img_2114.jpeg)
-
-
 
 ![](../../assets/img_2129.jpeg)
 
