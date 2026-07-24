@@ -21,9 +21,13 @@ Getting to the trail was easy from the bus, we walked up past a couple markets(i
 
 At first it was just short off the road, but quickly we ascended into more and more unstructured pathing. To the extend we were unsure we were on the right path at times, but we were. We came to the conclusion that during the rainy season the trail is probably not well maintained so it gets to be a little harder.
 
+![](../../assets/img_2259.jpeg)
+
 For me, I just had a lot of energy that day, so I was able to climb and jump around and I was having a grand old time with it. Benji on the other hand was feeling a bit off, so the hike was a bit harder at times. Regardless, we took breaks for each other, and so that we could keep the energy up till the top.
 
 walking around we got to see various types of fauna and flora, everything from snakes hanging of cables and ropes to large groups of bamboo. The unstructured nature of the hike gave it a feeling of exploration.
+
+![](../../assets/img_2261.jpeg)
 
 Eventually, we reached some road, and this was the final bit of pathing before the budha, climbing this, was the easy part.
 
@@ -51,9 +55,13 @@ The first one was smaller on the inside and primarily just had 3 statues in whic
 
 The second one we went to was more quaint building containing monk statues.
 
+![](../../assets/img_2293.jpeg)
+
 The third building was a room containing just the budha as well as people studying in there(as well as some cats).
 
 The final building was the one that took most of our time though. This was the main temple and had 3 floors. The first one contained various statues of the budha. The second floor contained more, but with one stone budha that was reminiscent of the big budha we saw earlier. Then the final floor, lead us outside and then into a tower where one could make a wish. Benji decided to make a wish there!
+
+![](../../assets/img_2292.jpeg)
 
 Overall, it was such a beautiful temple, and despite seeing plenty other temples, this one stood on its own well.
 
@@ -67,7 +75,11 @@ We said good bye to our new friend in Old town, and Benji and I quickly made a r
 
 After resting for a bit, we decided to go our to dinner at this fancier Thai-Chinese Resteraunt called “The Charm”. There we had gotten a few things, an oolong tea, a salad to share, a whole grilled fish, whatever the locals caught, and some spicy beef, and the fish was probably the most flavorful fish I have had here, it was so fresh and savory.
 
+![](../../assets/img_2316.jpeg)
+
 While that meal was amazing, we decided we had gotten comfortable with the stuff locals went to, after being in more local towns, so for dessert we wandered till we found this little restaurant that served us fried dough and pandan, and it felt like the best way to end the night. Today more than most felt very adventurous for Benji and I, and we were excited to fit all of these last few things in before we headed off from phuket in 2 days. This next day ahead of us seems to be more rainy, so I am glad we got our exploration fill today.
+
+![](../../assets/img_2317.jpeg)
 
 Goodnight,
 
