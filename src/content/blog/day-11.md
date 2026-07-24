@@ -1,10 +1,10 @@
 ---
-title: Day 11
+title: "Day 11: The Hike to The Big Budha"
 author: Sharyq Siddiqi
 description: Test Blog
 pubDate: 2026-07-24T10:28:00.000+07:00
 ---
-Hey yall! Once again doing this later than I wanted, but both these past 2 days I have been  too wiped to stay up past midnight writing. Today was a big physical activity day, so my energy was GONE.
+Hey yall! Once again doing this later than I wanted, but both these past 2 days I have been  too wiped to stay up past midnight writing. Today was a big physical activity day, so my energy was GONE
 
 # Quick Morning
 
