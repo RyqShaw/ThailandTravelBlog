@@ -2,7 +2,7 @@
 title: "Day 11: The Big Budha of Phuket"
 author: Sharyq “hike GOD” Siddiqi
 description: Sharyq recounts day of visiting phuket budha’s and temples
-pubDate: 2026-07-23T08:17:00.000+07:00
+pubDate: 2026-07-23T10:18:00.000+07:00
 ---
 Hey yall! Once again doing this later than I wanted, but both these past 2 days I have been  too wiped to stay up past midnight writing. Today was a big physical activity day, so my energy was GONE.
 
