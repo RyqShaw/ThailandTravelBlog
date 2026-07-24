@@ -3,7 +3,7 @@ title: "Day 11: The Hike to The Big Budha"
 author: Sharyq “The Hike God” Siddiqi
 description: Climbing to the Big Budha
 pubDate: 2026-07-24T10:28:00.000+07:00
-heroImage: ../../assets/img_2275.jpeg
+heroImage: ../../assets/img_2271.jpeg
 ---
 Hey yall! Once again doing this later than I wanted, but both these past 2 days I have been  too wiped to stay up past midnight writing. Today was a big physical activity day, so my energy was GONE.
 
@@ -34,6 +34,8 @@ We could easily see this from miles away, but upon getting closer it was astonis
 The Big Budha had a little plaza setup around it, where you could see monkeys just going on about there day. From here we could get an entirely different view of phuket from what we got before on our first hike here. This mountain being much taller, and being across the range allowed us to see the west side of phuket a lot easier.
 
 Upon walking up the stairs, we finally reached the Budha base, On the outside you can see monks interacting with tourists, as well as other little statues surrounding the base. Upon going inside, the budha was nearly hollow with primarily just support beams in there. I don’t have much to say besides it was marvelous.
+
+![](../../assets/img_2275.jpeg)
 
 Upon walking down, before leaving, we decided to reward ourselves with a 60 baht coconut, and it felt so refreshing to drink it all up and eat the insides of.
 
