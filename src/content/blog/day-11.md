@@ -1,6 +1,6 @@
 ---
 title: "Day 11: The Hike to The Big Budha"
-author: Sharyq Siddiqi
+author: Sharyq “The Hike God” Siddiqi
 description: Climbing to the Big Budha
 pubDate: 2026-07-24T10:28:00.000+07:00
 ---
