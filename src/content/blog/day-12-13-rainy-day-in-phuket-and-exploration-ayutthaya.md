@@ -3,6 +3,7 @@ title: "Day 12 & 13: Rainy Day in Phuket and Exploration Ayutthaya"
 author: Sharyq “The Voyager” Siddiqi
 description: Sharyq recaps 2 days, including rainy day activities and travel
 pubDate: 2026-07-25T21:15:00.000+07:00
+heroImage: ../../assets/blog-placeholder-2.jpg
 ---
 Hey yall! Been a little longer since a blog update, for context, yesterday in Phuket it rained, so there is a lot less to talk about(still did things, but less) so I decided to just halt and do double day post!
 
@@ -10,11 +11,19 @@ Hey yall! Been a little longer since a blog update, for context, yesterday in Ph
 
 So originally we planned to go to Freedom beach this day, but with torrential rain, it was not really possible, so we first went to a museum local to us. We stayed at Aekkeko Hostel(HEAVILY recommended), and it was just down the street, it was the Phuket Thai Hua museum. It discussed a lot of history of some historical buildings, but more specifically the history of that building and Chinese Immigration to Thailand and Phuket. The building used to be a school and it gave a lot of context for the journey in which this building took to get here.
 
+![](../../assets/img_2328.jpeg)
+
 \
 The second big thing we did that day is we decided to go to the Theatre. At the time of writing, The Odyssey recently just came out, so we went to SFX Cinema at the Central Phuket Mall, and first of all the movie was a near perfect movie for me(I have like 1 or 2 critiques but this is a travel blog). Second, a note to all foreigners, a video in celebration of the king of thailand may play before your film, if that happens, just stand to be respectful until its done. The theatre was more comfortable than any theatre I have been in while living in the US and the tickets were about 10 dollars USD.
 
+![](../../assets/img_2338.jpeg)
+
 \
 Afterwards, Benji and I explored the mall checking out a mega stationary store, clothing shops and getting dinner at a japanese place, i had a shrimp **okonomiyaki**(kind of japanese pancake with toppings). Overall simple day, we did end up going to bed early as tomorrow we were waking up at 4 am to start our journey to Ayutthaya.
+
+![](../../assets/img_2349.jpeg)
+
+![](../../assets/img_2346.jpeg)
 
 # This Journey was exhausting
 
