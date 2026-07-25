@@ -49,6 +49,8 @@ From there, we went to the Chao Sam Phraya National Museum, a museum made dedica
 \
 After we finished with the exhibit we explored the ruins for an hour before realizing we were drained. We didn’t feel too bad about leaving early as we have half a day tomorrow in Ayutthaya tomorrow before heading to Chiang Mai. 
 
+![](../../assets/img_2443.jpeg)
+
 After resting at the hotel for a bit, we eventually got dinner at the local night market that we were told about by the hostess of the hotel, and it was HUGE. Arguably one of the bigger ones we have been to here. One of the more affordable ones: for 110 baht I got a chicken terriyaki rice bowl, a black sesame soup milk, a lemon soda and a chocolate thai pancake. That is about 3 dollars USD. I am currently stuffed, and now back at the hotel both loving and regretting my decision
 
 \
