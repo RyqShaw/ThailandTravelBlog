@@ -3,7 +3,7 @@ title: "Day 12 & 13: Rainy Day in Phuket and Exploration Ayutthaya"
 author: Sharyq “The Voyager” Siddiqi
 description: Sharyq recaps 2 days, including rainy day activities and travel
 pubDate: 2026-07-25T21:15:00.000+07:00
-heroImage: ../../assets/blog-placeholder-2.jpg
+heroImage: ../../assets/img_2453.jpeg
 ---
 Hey yall! Been a little longer since a blog update, for context, yesterday in Phuket it rained, so there is a lot less to talk about(still did things, but less) so I decided to just halt and do double day post!
 
@@ -33,8 +33,18 @@ We checked out early that morning, and went to the Phuket Bus terminal, where th
 
 For lunch we went to a place called Uncle Leks and had some absolutely delicious noodle bowls(beef for me, pork for benji) as well as some fantas. All for under 200 baht. Amazing meal would recommend.
 
+![](../../assets/img_2365.jpeg)
+
 \
 From there, we went to the Chao Sam Phraya National Museum, a museum made dedicated to the artifacts found in the archeological extractions in Ayutthaya in the 50s and 60s. The Museum gave us a lot of context for what we were going to see in the Historical park, the significance of some of the temples, how one was a tomb dedicated to the king in the 15th century, and the purpose of artifacts there. Here are a couple photos from the exhibit:
+
+![](../../assets/img_2370.jpeg)
+
+![](../../assets/img_2402.jpeg)
+
+![](../../assets/img_2419.jpeg)
+
+![](../../assets/img_2407.jpeg)
 
 \
 After we finished with the exhibit we explored the ruins for an hour before realizing we were drained. We didn’t feel too bad about leaving early as we have half a day tomorrow in Ayutthaya tomorrow before heading to Chiang Mai. 
