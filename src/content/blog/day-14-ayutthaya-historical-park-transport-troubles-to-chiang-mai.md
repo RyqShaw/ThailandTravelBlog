@@ -23,6 +23,8 @@ From there we walked past the pond to Wat Phra Ram, our first major ruins of the
 
 From there we walked a lil further west till we reached the 3 major temples, Wat Phra Si Sanphet. There was originally 6, but only the 3 large ones lasted the test of time. 
 
+![](../../assets/img_2483.jpeg)
+
 The walk around was a lot and very hot, we ended up taking a break to get boat noodles! Once again, noodle soups here are amazing. 
 
 Afterwards, we walked around a tad more trying to find an entrance to the ancient palace, but every entrance was closed to the public, so we ended up going to one last Wat thats more popular among the locals: Wat Na Phra Men Rachikaram. It was very popular today, no idea why, but lots of people praying and we just got to take in the view.
