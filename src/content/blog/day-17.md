@@ -1,5 +1,5 @@
 ---
-title: Day 17
+title: "Day 17: A Tour Through Sticky Waterfalls"
 author: Sharyq “Once again climbin” Siddiqi
 description: Sharyq talks about a tour we took in chiang mai
 pubDate: 2026-07-29T22:30:00.000+07:00
@@ -46,6 +46,8 @@ We ended the meal with some Durian ice cream, and outside the smell, it tasted g
 # Temple time
 
 Our next trip was to the Wat. This one was one of the largest we had ever been too, and it was named after its blue roofs. This was a mixed buddhist temple(consisting of both chinese and indian derivatives of buddhist structures).
+
+![](../../assets/img_2724.jpeg)
 
 We had hit up a total of about 7 different temples here before it started raining. 
 
