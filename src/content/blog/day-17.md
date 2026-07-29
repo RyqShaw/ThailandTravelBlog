@@ -5,6 +5,8 @@ description: Sharyq talks about a tour we took in chiang mai
 pubDate: 2026-07-29T22:30:00.000+07:00
 heroImage: ../../assets/blog-placeholder-5.jpg
 ---
+![]()
+
 Hey yall! This blog post will probably go up at the same time for yesterdays, Benji and I are currently writing them in parallel given last 2 days have been busy.
 
 # Starting off another Quick Morning
@@ -12,6 +14,7 @@ Hey yall! This blog post will probably go up at the same time for yesterdays, Be
 Today once again was another morning we had to be punctual, for the second day in a row, I got Benji and I croissants and coffee before heading out. We got dressed in a lazy fashion and were met by our guide and driver for today, Tong.
 
 We got into the car and were introduced to our companions on this tour, as today we were going to Chiang Mai’s Sticky Waterfalls, Wat Densari Sri Muangken, and the “Angel Lands”. 
+
 # Sticky Waterfalls
 
 Our first destination was waterfalls, and we had a bit of a driver there, Tong stopped us at a 7/11 to get some coffee or food if we needed, I unfortunately was car sick. When we got back in, Benji had me situp front, so I got to get to know Tong well.
@@ -20,7 +23,11 @@ He was such a character, he labeled himself “Tong Cruise”, he had plenty of 
 
 We got to the Waterfall first, we ended up changing into swimsuits and exploring around first, there was a spirit house nearby that Tong showed us while explaining why the sticky waterfalls were sticky. The spring the water comes from contained a calcium carbonate that made many of the stones have traction rather than making them slippery.
 
+![](../../assets/img_2669.jpeg)
+
 We eventually begun our trek down, as we climbed from the bottom of the falls up.
+
+![](../../assets/img_2688.jpeg)
 
 The water once again was a great temperature here and the rocks weren’t sticky but rather had plenty of friction, still though Benji and I were still a tad scared of falling.
 
@@ -35,6 +42,7 @@ Once the climb was finished we climbed back up we changed back into normal cloth
 Lunch today was once again Khao Soi! Loved it the first time(and this time i didn’t ruin my shirt). Little spicier than the first time but wasn’t spicy enough for me(I hope Benji talks about my arrogance regarding spice yesterday).
 
 We ended the meal with some Durian ice cream, and outside the smell, it tasted great.
+
 # Temple time
 
 Our next trip was to the Wat. This one was one of the largest we had ever been too, and it was named after its blue roofs. This was a mixed buddhist temple(consisting of both chinese and indian derivatives of buddhist structures).
@@ -44,7 +52,9 @@ We had hit up a total of about 7 different temples here before it started rainin
 Now the smart thing would have been to go back to the car, but there was still so much to explore… so we explored in the rain.
 
 We eventually got back to the car and was later informed by Benji that we may have been 10 minutes late.
+
 # Angel Lands
+
 Our final destination was the angel lands, it was a property bought in 2020 renovated and made into a garden of some sort with man made waterfalls. 
 
 We got in and immediately Benji wanted coffee and I was surprised by 35 baht coconut pancakes, an offer I could not refuse.
@@ -54,7 +64,9 @@ We explored for a while seeing the falls and the gardens.
 After a bit we finally decided we needed a bit to sit so Benji got a Lemon Honey Soda while I got a Longon Soda(tasted like a sweeter lychee)
 
 After this things wrapped up and we were dropped off by Tong, but not before he could crack a few more jokes, talk about his family, and his home in Pai, and giving us fist bumps on the way out. Awesome tour.
+
 # Special Dinner
+
 For dinner we went to Huen Muan Jai, a restaurant Benji’s Mom had been too when she was in Thailand. We got a Grab, and we knew the place was gonna be crazy when we were told we had a 40 minute wait. We ended up waiting those full 40 minutes, and it was worth it. 
 
 To start we got sundried beef, and a fried fish, both evicerated before i could take a picture.
