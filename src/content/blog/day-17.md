@@ -5,8 +5,6 @@ description: Sharyq talks about a tour we took in chiang mai
 pubDate: 2026-07-29T22:30:00.000+07:00
 heroImage: ../../assets/blog-placeholder-5.jpg
 ---
-![]()
-
 Hey yall! This blog post will probably go up at the same time for yesterdays, Benji and I are currently writing them in parallel given last 2 days have been busy.
 
 # Starting off another Quick Morning
@@ -37,9 +35,13 @@ We reached certain peaks where we would get told some lessons about the nature a
 
 The climb for Benji and I was easy, to the extent we were dashing ahead of everyone in many cases. But we eventually slowed down for everyone when we went on a path off from the main crowd so Tong could get us some space. 
 
+![](../../assets/img_2700.jpeg)
+
 Once the climb was finished we climbed back up we changed back into normal clothes and headed off to lunch.
 
 Lunch today was once again Khao Soi! Loved it the first time(and this time i didn’t ruin my shirt). Little spicier than the first time but wasn’t spicy enough for me(I hope Benji talks about my arrogance regarding spice yesterday).
+
+![](../../assets/img_2703.jpeg)
 
 We ended the meal with some Durian ice cream, and outside the smell, it tasted great.
 
@@ -53,6 +55,8 @@ We had hit up a total of about 7 different temples here before it started rainin
 
 Now the smart thing would have been to go back to the car, but there was still so much to explore… so we explored in the rain.
 
+![](../../assets/img_2747.jpeg)
+
 We eventually got back to the car and was later informed by Benji that we may have been 10 minutes late.
 
 # Angel Lands
@@ -61,9 +65,13 @@ Our final destination was the angel lands, it was a property bought in 2020 reno
 
 We got in and immediately Benji wanted coffee and I was surprised by 35 baht coconut pancakes, an offer I could not refuse.
 
+![](../../assets/img_2760.jpeg)
+
 We explored for a while seeing the falls and the gardens.
 
 After a bit we finally decided we needed a bit to sit so Benji got a Lemon Honey Soda while I got a Longon Soda(tasted like a sweeter lychee)
+
+![](../../assets/img_2771.jpeg)
 
 After this things wrapped up and we were dropped off by Tong, but not before he could crack a few more jokes, talk about his family, and his home in Pai, and giving us fist bumps on the way out. Awesome tour.
 
@@ -73,9 +81,13 @@ For dinner we went to Huen Muan Jai, a restaurant Benji’s Mom had been too whe
 
 To start we got sundried beef, and a fried fish, both evicerated before i could take a picture.
 
+![](../../assets/img_2796.jpeg)
+
 Next up came some mushrooms with a chilli dip, both Benji and I were okay with it.
 
 Finally we had the soups, one was a banana red curry with chicken and the other a spicey fish head soup.
+
+![](../../assets/img_2797.jpeg)
 
 This meal totaled to ~500 baht and it was ABSOLUTELY delicious. The kitchen closed before we could get dessert(really wanted to banana and coconut milk) and the only thing Benji wishes he could have had was the derp muang, a plater of various pork items, but they were out(doesn’t affect me but unfortunate for him).
 
