@@ -3,7 +3,7 @@ title: "Day 17: A Tour Through Sticky Waterfalls"
 author: Sharyq “Once again climbin” Siddiqi
 description: Sharyq talks about a tour we took in chiang mai
 pubDate: 2026-07-29T22:30:00.000+07:00
-heroImage: ../../assets/blog-placeholder-5.jpg
+heroImage: ../../assets/img_2683.jpeg
 ---
 Hey yall! This blog post will probably go up at the same time for yesterdays, Benji and I are currently writing them in parallel given last 2 days have been busy.
 
