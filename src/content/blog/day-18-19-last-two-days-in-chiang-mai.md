@@ -19,9 +19,11 @@ From here we headed to the Chiang Mai Cultural Museum! The museum focused heavil
 
 The museum was very guided, as we just had to follow the path set out for us and we were brought through Lanna, and got different views of the kingdom, such as from commerce, crafts and agriculture! We really enjoyed this, feeling like we got a good crash course on what created the modern Chiang Mai culture we have now, especially since Chiang Mai does feel different from most of Thailand.
 
-![]()
+![](../../assets/img_2845.jpeg)
 
 After the museum we wandered for lunch and ended up at this small chinese-thai restaurant that had been open for 80 years, and was packed. We got a table and we got shrimp balls as an appetizer, and i got theire special fish egg noodle dish, apparently what they were known for, and I understand now why the restaurant was packed, it was delicious.
+
+![](../../assets/img_2851.jpeg)
 
 Afterwards we went to the Lanna Folklife Museum, which had more of a focus on just how people lived in Lanna rather than the history, focusing a lot on the crafts and the arts. I was fawning over the instruments while benji fawned over the looms.
 
@@ -29,9 +31,15 @@ Afterwards we went to the Lanna Folklife Museum, which had more of a focus on ju
 
 From here, it was late afternoon, we decided we wanted to hit a market up, so we walked over to Jung Jai Market, at the time we didnt realize it was primarily a weekend market, so not much was here, but there was a couple places we checked out, primarily a hippie-ish goods store called “good goods”, and this place was awesome, having bags made of recycled materials tons of fashionable clothes from local designers, and tea and food you wont find many places else.
 
+![](../../assets/img_2878.jpeg)
+
 We also went into this claw machine arcade that was filled to the brim with a claw machine for EVERYTHING, we wanted to try one of them, but the store was closing by the time we wanted to try.
 
+![](../../assets/img_2887.jpeg)
+
 Eventually, we were looking for dinner, and we thought “maybe we will check out this town’s Lotus”, Lotus being the mall chain in thailand, and we happened to walk in on a BIG night market, so Benji and I knew where were getting dinner, and once again, we brought back a ton. I had some Korean Fried Chicken, a beef bun, brownie cookie, and a a slice of an oreo cake, all for about 5 dollars USD, plus I got a Grass Jelly milk tea as I am developing an addiction. We ended up bringing our cake back to our hotel and ate and chilled there for the night, and crashed early so we could go to Chiang Mai’s morning market the next day.
+
+![](../../assets/img_2888.jpeg)
 
 # Exploring Chiang Mai China Town
 
