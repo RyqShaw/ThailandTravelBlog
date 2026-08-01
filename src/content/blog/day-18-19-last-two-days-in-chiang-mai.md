@@ -3,7 +3,7 @@ title: "Day 18 & 19: Last Two Days in Chiang Mai"
 author: Sharyq “The Wat Enjoyer” Siddiqi
 description: Summary of last 2 days in Chiang Mai
 pubDate: 2026-07-31T10:53:00.000+07:00
-heroImage: ../../assets/blog-placeholder-2.jpg
+heroImage: ../../assets/img_2967.jpeg
 ---
 Hey Yall! Last 2 days were a little more relaxed so I decided to combine them into 1 post(also admittedly just been busy relaxing in the evenings rather than writing).
 
