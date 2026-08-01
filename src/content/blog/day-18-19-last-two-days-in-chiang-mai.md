@@ -45,17 +45,27 @@ Eventually, we were looking for dinner, and we thought “maybe we will check ou
 
 the Market was glorious per usual, this was a Chinese Muslim market, so I was thriving here, i ended up getting a Goat bun, some samosas and another grass jelly milk tea because I have a problem. After the market we had declared that we wanted to do a little bit of shopping today, so we went to Chiang Mai China Town.
 
+![](../../assets/img_2905.jpeg)
+
 We walked through, finding cool fabric stores and what not, until we found this BIG multi-floor market, this place felt like a labyrinth but full of bartering. Not revealing what I bought here, but Benji saw these prayer beads he wanted and initially the lady said 250 baht, I said “Lot Dai Mai” and cracked the price down to 200 baht, and that felt a tad more fair, got a tiny discount.
+
+![](../../assets/img_2911.jpeg)
 
 We truly spent so much time in this market that sunlight took us by surprise when we left. Eventually we went into this clothing shop and each Benji and I got some shirts here! 
 
 Afterwards, we sat down for some coffee, giving us a break from walking around most of the day, and then headed to the silver temple, one of Chiang Mai’s famous temples. There was entire plaza around it, and first we went to the temple next to it, where a Monk had greeted us and given us bracelets to wish us good luck on our travels, we were so confused at first given we had not talked to many monks, much less had Monks given us anything before, but he was very nice!
 
+![](../../assets/img_2926.jpeg)
+
 Afterwards, we entered the temple, noting sadly it was another men only temple. It was beautiful on the inside and out, it was unique to see engraving of places and different cultures here, the temple tried to have something from every part of the globe engraved in silver. 
+
+![](../../assets/img_2924.jpeg)
 
 Outside the temple, we saw this little crafts station where people could make jewelry with a hammer, and Benji and I had went in with hubris given we do crafts, we were humbled as it was harder to create designs in metal with just a mallet than we anticipated. Benji originally had an advanced design he wanted to do, and he eventually settled for writing our names, and I originally wanted to wing it and make a bunch of flowers, I simplified heavily, still was fun!
 
 We ended up getting lunch at this Gujrati Place, I got Paneer Makhani with naan, and it was delicious.
+
+![](../../assets/img_2937.jpeg)
 
 With lunch eaten, we headed back to the hotel, picked up our stuff and headed to the airport, catching our final domestic flight of the trip.
 
@@ -65,9 +75,15 @@ We landed in Bangkok at at 6:30pm and initially just due to distance and energy,
 
 We checked into the hotel and went out to the mall nearby: Iconsiam, and this place was huge, first we got japanese bowls from Omakase Don, and got entire set that was very tasty, then I got chocolate strawberries for dessert.
 
+![](../../assets/img_2946.jpeg)
+
 There was so much going on at this mall, even an hour before closing light shows, shop events, and it had so many different vibes, I have never seen an American mall like this, it was crazy.
 
+![](../../assets/img_2956.jpeg)
+
 We went back to the hotel and then crashed for the night. Despite these being a relaxed 2 days they were still jam packed. Realizing that now that I have been writing this blog post😅
+
+![](../../assets/img_2950.jpeg)
 
 Adios!
 
